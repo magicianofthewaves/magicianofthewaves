@@ -8,5 +8,5 @@ havent been well with communication lately unless youve were close to me a while
 
 havent been very responsive either but im very welcome to listen though
 
-im a chill guy though i dont bite, love cuds zzz
+im a chill guy though i dont bite, still feel comfort through cuds love em zzz
 
