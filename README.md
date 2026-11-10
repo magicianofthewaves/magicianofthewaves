@@ -2,7 +2,7 @@ You've found... me!
 
 ── ⟢ ・⸝⸝
 
-just alterego maxxing, if you know my main since i keep the same ata hi !!
+just alterego maxxing, if you know me hi !!
 
 havent been well with communication lately unless youve were close to me a while back 
 
